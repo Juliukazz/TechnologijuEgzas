@@ -1,0 +1,2 @@
+# TechnologijuEgzas
+technologiju egzas
